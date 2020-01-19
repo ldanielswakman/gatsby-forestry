@@ -1,5 +1,5 @@
 ---
-title: New Beginnings
+title: Stand out to investors with a video pitch.
 date: "2015-05-28T22:40:32.169Z"
 ---
 
